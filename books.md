@@ -1,0 +1,3 @@
+- The Joy Luck Club by Amy Tan
+- Crazy Rich Asians by Kevin Kwan
+- Little Fires Everywhere by Celeste Ng
